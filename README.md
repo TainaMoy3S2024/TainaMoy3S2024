@@ -1,4 +1,4 @@
-## Bem vindos ao meu perfil :pink_heart 
+## Bem vindos ao meu perfil 🩷 
 Meu nome é Tainá Hatore Moysés 
 Sou estudante do ensino médio e aluno do Alura
 Utilizo esse espaço para o compartilhamento dos meus projetos desenvolvidos em aula
